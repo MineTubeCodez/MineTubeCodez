@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MineTubeCodez
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning ur mom
+- 💞️ I’m looking to collaborate on when yo die
+- 📫 How to reach me: send me an email on noahlambert2010@gmail.com
